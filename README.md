@@ -26,3 +26,6 @@ About the website:
 
 Authors: Allen, Joel, Rhea, Akshita, Terrin.
 
+Video Link Part 1: https://www.instagram.com/p/CLRwWyAg3fL/
+Video Link Part 2: https://www.instagram.com/p/CLRx2TDAJ8-/
+
